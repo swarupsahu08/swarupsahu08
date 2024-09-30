@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with open source contribution and trying to gain experience in collaborative projects
 - 📫 How to reach me: swarup8sahu@gmail.com
 
-<img src="[https://holopin.io/@swarup08](https://holopin.me/swarup08))">
+<img src="https://holopin.me/swarup08">
